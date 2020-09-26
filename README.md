@@ -1,2 +1,2 @@
 # hello-world
-Hi guys, I wanna be a well-known trader in the next 5 years.
+MINH NHAT NGUYEN, OPS435 NAA
